@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @blind0x
-- 👀 I’m interested in develpoing crazy ass softwares that can do real shit.
+- 👀 I’m interested in developing crazy ass softwares that can do real shit.
 - 🌱 I’m currently learning to level the game up.
 - 💞️ I’m looking to collaborate on nothingness.
 - 📫 How to reach me - drop me msg anywhere, I'll get you.
